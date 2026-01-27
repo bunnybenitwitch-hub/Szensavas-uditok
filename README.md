@@ -1,2 +1,0 @@
-# Szensavas-uditok
-Orai Projektmunka
